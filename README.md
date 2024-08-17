@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ProfCaetano 
+- 👋 Hi, I’m Adriana Caetano, or @ProfCaetano 
 - 👀 I’m interested in yoga
 - 🌱 I’m currently learning French
 - 📫 How to reach me: through Canvas email
